@@ -1,4 +1,4 @@
-# Zhaksenbayeva Unar Melsovna
+# Zheksenbayeva Unar Melsovna
 
 **Phone:** +7 (777) 9992859 (preferred contact method)  
 **Email:** uarykbayeva@gmail.com  
